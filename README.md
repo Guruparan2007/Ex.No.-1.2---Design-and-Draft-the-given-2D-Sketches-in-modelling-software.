@@ -31,7 +31,7 @@
  
  ![image](https://user-images.githubusercontent.com/113594316/198233011-28615257-fc2b-4c81-852a-49722c948e07.png)
  
- ![image](https://github.com/user-attachments/assets/810f92da-3d72-4fe6-afc9-d184de1d942a)
+
 
  ## SKETCH
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
